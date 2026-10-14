@@ -39,3 +39,5 @@ Critical Questions and Directions
 Налево (Naleva) – To the left
 Направо (Naprava) – To the right
 Прямо (Pryama) – Straight ahead
+
+lol https://www.tiktok.com/@eumorrei/video/7672837215151557895
